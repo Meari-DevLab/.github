@@ -8,7 +8,7 @@
 
 👩‍💻 Useful resources - You can visit the main to view the required documents Or ask our developers.
 
-🍿 How to contact us - email: minjie.tang@meari.com.cn 
+🍿 How to contact us - email: jinbo.feng@meari.com.cn 
 
 🧙 Visit the official website. [meari](https://www.meari.com/)
 
